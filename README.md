@@ -1,5 +1,5 @@
 # 𝄞𓂃 ࣪˖ 𝒀𝒐𝒖𝒓 𝑺𝒚𝒎𝒑𝒉𝒐𝒏𝒚 𝑹𝒆𝒔𝒐𝒏𝒂𝒕𝒆𝒔 𝒘𝒊𝒕𝒉𝒊𝒏 𝑴𝒚𝒔𝒆𝒍𝒇
-![♡](https://github.com/eternxal/eternxal/blob/c7a8974320fe81939a3ee35997ea90d181f120c0/1000153960-removebg-preview.png)
+![♡](https://github.com/eternxal/eternxal/blob/4ee2ac12da6302a47b28216a06eb359c1531a4ee/1000153962-removebg-preview.png)
 ![˖ ݁𖥔 ݁˖ ꒰ 𐙚 ꒱   ˖ ݁](https://github.com/eternxal/eternxal/blob/d91747e26fcf4dbfcf55ac1a32b02e2d073ae71d/images%20(22).jpeg)
 
 ![♡](https://github.com/eternxal/eternxal/blob/abe5f76553a15f7ba70055162bfd5b0a86f45e74/Tumblr_l_1201520103070.jpg)
