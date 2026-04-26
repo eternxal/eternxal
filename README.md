@@ -7,6 +7,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&pause=10000&color=8ADC85EC&background=17267000&center=true&width=435&lines=+%F0%94%93%95++++%F0%9D%90%8C%F0%9D%90%9A%F0%9D%90%A9%F0%9D%90%A5%F0%9D%90%9E+%2F+%F0%9D%90%8C%F0%9D%90%A2%F0%9D%90%B3" alt="Typing SVG" /></a>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&pause=10000&color=8ADC85EC&background=17267000&center=true&width=435&lines=+%F0%94%93%95++++%F0%9D%90%8C%F0%9D%90%9A%F0%9D%90%AB%F0%9D%90%9C%F0%9D%90%A1+10%F0%9D%90%AD%F0%9D%90%A1+" alt="Typing SVG" /></a>
 ✦ 𝐈 𝐝𝐨𝐧'𝐭 𝐭𝐚𝐥𝐤 𝐦𝐮𝐜𝐡 𝐢𝐟 𝐲𝐨𝐮 𝐦𝐞𝐭 𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐞 𝐟𝐢𝐫𝐬𝐭 𝐭𝐢𝐦𝐞 
+︶︶︶︶︶︶︶ 
 ✦ 𝐁𝐞 𝐚𝐰𝐚𝐫𝐞 𝐭𝐡𝐚𝐭 𝐈 𝐜𝐚𝐧 𝐬𝐨𝐦𝐞𝐭𝐢𝐦𝐞𝐬 𝐦𝐚𝐤𝐞 𝐬𝐮𝐠𝐠𝐞𝐬𝐭𝐢𝐯𝐞 𝐣𝐨𝐤𝐞𝐬 / 𝐪𝐮𝐨𝐭𝐞𝐬 𝐢𝐧 𝐠𝐞𝐧𝐞𝐫𝐚𝐥. 𝐈𝐟 𝐲𝐨𝐮'𝐫𝐞 𝐮𝐧𝐜𝐨𝐦𝐟𝐨𝐫𝐭𝐚𝐛𝐥𝐞, 𝐭𝐞𝐥𝐥 𝐦𝐞 𝐫𝐢𝐠𝐡𝐭 𝐚𝐰𝐚𝐲 !
 ![✦](https://github.com/eternxal/eternxal/blob/b0a60ee59fb26d87dd0eff074e093fca9a94d4c5/Tumblr_l_1494398139165.jpg)
 
