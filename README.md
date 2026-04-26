@@ -14,4 +14,5 @@
 ![✦](https://github.com/eternxal/eternxal/blob/b0a60ee59fb26d87dd0eff074e093fca9a94d4c5/Tumblr_l_1494398139165.jpg)
 
 <img width="368" height="368" alt="17771196658688854771229430608424" src="https://github.com/user-attachments/assets/e35ec495-7dbb-4449-8bea-040f7fdb76aa" />
-![♡](https://github.com/eternxal/eternxal/blob/c43caa766c2134dd275f936237c85b204327d287/1000153960-removebg-preview.png)
+
+![♡](https://github.com/eternxal/eternxal/blob/4ee2ac12da6302a47b28216a06eb359c1531a4ee/1000153962-removebg-preview.png)
